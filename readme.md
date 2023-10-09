@@ -21,7 +21,7 @@ Typora从免费版本到收费版，对于囊中羞涩的学生党不方便使�
 
 ### 1、preface
 
-Typora from the free version to the paid version, it is not easy for the cash-strapped student party to use. And the paid version can only be purchased in a large version, not a permanent one-time purchase, which is a bit bad. So students who are not financially independent can use this version of Typora activation. However, if you have a job  🔞 🈲️ and want to support the legal version, please support the legal version. After all, it is very hard for development companies to develop software.
+Typora from the free version to the paid version, it is not easy for the cash-strapped student party to use. And the paid version can only be purchased in a large version, not a permanent one-time purchase, which is a bit bad. So students who are not financially independent can use this version of Typora activation. However, if you have a job and want to support the legal version, please support the legal version. After all, it is very hard for development companies to develop software.
 
 ### 2、The activation step
 
